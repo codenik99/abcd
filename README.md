@@ -1,2 +1,2 @@
 # abcdggggggf
-gg
+g
